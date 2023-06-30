@@ -1,7 +1,7 @@
 # kunjvyas.portfolio
 Hi! 
 
--> I am Kunj, a UX Designer at DemocracyLab with the background as a Data Engineering Associate at Accenture. 
+-> I am Kunj, a UX Designer at DemocracyLab, USA with the background as a Data Engineering Associate at Accenture, India. 
 
 -> A professional musician and a singer along with a great sportsperson. 
 
